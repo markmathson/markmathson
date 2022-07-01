@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @markmathson
-- 👀 My interests range from technology and business to fitness and outdoors.
+- 👀 My interests range from product, business and technology to fitness and outdoors.
 - 🌱 I’m always learning.
 - 📫 How to reach me: https://markmathson.com/
 
