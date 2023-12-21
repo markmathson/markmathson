@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @markmathson
+- 👋 Hi, I’m Mark Mathson, a Product Manager based in Bozeman, MT.
 - 👀 My interests range from product, business and technology to fitness and outdoors.
 - 🌱 I’m always learning.
 - 📫 How to reach me: https://markmathson.com/
